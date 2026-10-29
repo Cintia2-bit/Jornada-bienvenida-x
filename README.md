@@ -1,1 +1,1 @@
-# Jornada-bienvenida-x
+# Jornada-bienvenida-xp
